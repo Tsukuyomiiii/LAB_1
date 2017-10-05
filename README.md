@@ -1,1 +1,1 @@
-Everything is awesom
+Everything is awesome
